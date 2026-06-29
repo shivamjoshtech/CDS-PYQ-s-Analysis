@@ -1,4 +1,4 @@
-# CDS EXAMINATION — MASTER CROSS-PAPER ANALYSIS
+# CDS EXAMINATION — MASTER PYQ's ANALYSIS
 
 **General Knowledge | Elementary Mathematics | English**
 
